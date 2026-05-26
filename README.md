@@ -75,9 +75,9 @@ I'm always interested in:
 ## 📫 Let's Connect
 
 - **Portfolio/Blog**: [Your Website](https://yourwebsite.com)
-- **LinkedIn**: [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)
+- **LinkedIn**: [Mohammad Adnan Ali](https://www.linkedin.com/in/mohammad-adnan-ali)
 - **Twitter**: [@yourhandle](https://twitter.com/yourhandle)
-- **Email**: your.email@example.com
+- **Email**: mdadnangecv55@gmail.com
 
 ---
 
@@ -91,9 +91,9 @@ I'm always interested in:
 
 ## ⚡ Fun Facts
 
-- 🎮 [Share a hobby or interest]
-- 🎨 [Share a hobby or interest]
-- 📚 [Share a hobby or interest]
+- 🎮 [Gaming]
+- 🎨 [Designing]
+- 📚 [Reading]
 
 ---
 
